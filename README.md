@@ -1,0 +1,1 @@
+# trustful-stellar-icons-cdn
